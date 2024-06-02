@@ -1,1 +1,1 @@
-# Business-Insigh-360
+# Business-Insight-360
